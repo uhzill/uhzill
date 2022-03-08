@@ -1,4 +1,4 @@
-- 👋 Hi, I’m JooHyun
+- ✨ Hi, I’m JooHyun
 - 👀 I’m interested in 
 - 📫 How to reach me uhzillzzz@naver.com
 
